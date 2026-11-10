@@ -1,1 +1,1 @@
-al-samneh.github.io & Samneh.com
+Samneh.com/portfolio
